@@ -1,0 +1,5 @@
+Preheat the oven to 350 degrees F or cooker for 10 mins at medium flame. Butter round cake pans. Line with parchment paper, then butter and flour the pans.
+Take a pan and pour water in it and take a glass bowl break chocolate in parts and keep the bowl on pan 
+keep on medium flame . with a spatula mix the chocolate till it becomes liquid . in batter we will add this.
+Sift the flour, sugar, cocoa, baking soda, liquid chocolate,baking powder, and salt into the bowl and mix it still you get a smooth constinecy.  Pour the batter into the prepared pans and bake for 35 to 40 minutes in oven or cooker,  take a tooth pick on check whether it is bbaked nicely ,until a cake tester comes out clean. Cool in the pans for 30 minutes, then turn them out onto a cooling rack and cool completely.
+Leave it cool for 30 mins and you Chocolate Cake is ready to eat.
